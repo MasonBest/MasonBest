@@ -1,5 +1,6 @@
 - 👋 Hi, I’m Pedro (@MasonBest)
-- 👀 Founder and Developer at Raridade RP
+- 👀 Founder and Developer at R
+
 - More projects comming...
 
 
